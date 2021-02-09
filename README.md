@@ -1,1 +1,0 @@
-# oblig2-mariellevitting
